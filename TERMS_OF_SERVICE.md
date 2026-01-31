@@ -1,8 +1,8 @@
 # Terms of Service for WorkFlow
 
-**Last Updated:** [Date]
+**Last Updated:** [31.01.2026]
 
-**Effective Date:** [Date]
+**Effective Date:** [31.01.2026]
 
 ## 1. Acceptance of Terms
 
